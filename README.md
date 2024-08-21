@@ -33,3 +33,5 @@ Over the past decade, I have:
 - **LinkedIn:** [https://www.linkedin.com/in/karrar-s-honi-918054a1]
 
 Feel free to check out my repositories below. I'm always open to collaborating on interesting projects and learning new things!
+
+![](https://i.gifer.com/33HU.gif)
