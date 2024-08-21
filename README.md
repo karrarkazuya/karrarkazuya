@@ -34,4 +34,4 @@ Over the past decade, I have:
 
 Feel free to check out my repositories below. I'm always open to collaborating on interesting projects and learning new things!
 
-![](https://i.gifer.com/33HU.gif)
+![](https://i.4cdn.org/g/1724244239469215.jpg)
