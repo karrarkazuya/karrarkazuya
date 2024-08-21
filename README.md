@@ -1,4 +1,4 @@
-# Hi there 👋, I'm Karrar S. Honi
+# Hi there 👋, I'm Karrar <img src="/mario.gif" width="60">
 
 ## About Me
 
